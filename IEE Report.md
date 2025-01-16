@@ -10,7 +10,9 @@ Submitted By
 
 
 Semi Kağan Şahin - 2100005539
+
 Timur Demir – 2200005944
+
 Emre Koca - 2200003637
 
 
